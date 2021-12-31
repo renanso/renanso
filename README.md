@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @renanso
-- 👀 I’m interested in plant breeding
+- 👀 I’m interested in Plant Breeding
 
 
 <!---
